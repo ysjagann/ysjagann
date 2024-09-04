@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ysjagann
+- 👋 Hi, I’m @sudha_lohith
 - 👀 aaa kurchi madatha petti dengithe medalu irigipoyinayinayi
 
 <!---
